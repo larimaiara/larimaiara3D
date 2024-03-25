@@ -1,1 +1,0 @@
-# larimaiara3D
